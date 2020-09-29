@@ -46,18 +46,14 @@ Costs about £300-900 per injection. I was told I needed 4 and it may not work. 
 
 >  The results show that GH exerts a direct, nonliver mediated effect on bone tissue. Moreover, the study suggests that hGH may be used to stimulate bone healing and formation in conjunction with osteopromotive membranes
 
-Motherfucking **BINGO** right there
-
-Additionally it seems as if HGH helps to regenerate just about any other type of tissue, kind off like reversing damage or helping you heal faster.
+ **BINGO** - it seems as if HGH helps to regenerate just about any other type of tissue, kind off like reversing damage or helping you heal faster.
 
 The negatives are clear as well, the worst one is that if you have any cancerous/bad cells on you, those are gonna grow too. 
 
-It costed me £195/week over an 8 week period. Decided to go for it, I did it through a respectable private medical consultancy.
-
-This blog is nothing but an attempt to document from an anectdotical angle the benefits of human growth hormones delivered to a pseudoathlete that suffered a fracture and tendon damage.
+It costed me £195/week over an 8 week period. Decided to go for it, I did it through a respectable private medical consultancy. This blog is nothing but an attempt to document from an anectdotical angle the benefits of human growth hormones delivered to a young male that suffered a fracture and tendon damage.
 
 I will try my best to cover all the aspects of the treatment in a transparent and well redacted way.
 
-Opinions are my own. This is being published anonymously. P.S: Epstein didn't kill himself.
+Opinions are my own. This is being published anonymously. Epstein didn't kill himself.
 
 
