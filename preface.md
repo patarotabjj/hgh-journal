@@ -18,9 +18,9 @@ On that same visit to the clinic I got an MRI on my knee as well. I was told I h
 
 ![](https://www.mayoclinic.org/-/media/kcms/gbs/patient-consumer/images/2013/11/15/17/41/ds00555_ds00662_im02520_mcdc7_acl_injurythu_jpg.jpg)
 
-Surgery seemed expensive, shit and dangerous. Not to mention [insurance companies](https://www.vitality.co.uk/) in this country are out to completely ruin you financially and ["public intermediaries"](https://www.financial-ombudsman.org.uk/) are nothing but absolutely lobby-driven, instransparent pieces of shit.
+Surgery seemed expensive, shit and dangerous. Not to mention [insurance companies](https://www.vitality.co.uk/) in this country are out to completely ruin you financially and ["public intermediaries"](https://www.financial-ombudsman.org.uk/) are nothing but absolutely lobby-driven, instransparent piece of shit.
 
-So I did a little bit of research and after multiple consultations with orthopaedists, medical students and people online I narrowed 3 treatment options:
+I did a little bit of research, and after multiple consultations with orthopaedists, medical students and people online I narrowed 3 treatment options:
 
 ### [Conservative management](https://en.wikipedia.org/wiki/Conservative_management)
 
